@@ -1,0 +1,1 @@
+# Telefonun-kendi-kendine-kapanma-sorununu-bulmak-
